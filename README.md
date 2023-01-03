@@ -1,2 +1,1 @@
-# ntroute.com
-Private Domain
+# nojic.com
